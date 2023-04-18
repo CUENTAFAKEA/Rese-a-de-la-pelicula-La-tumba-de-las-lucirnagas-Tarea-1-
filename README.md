@@ -7,10 +7,10 @@ _Reseña elavorada por Kimberline Reyes Macis_
 - Producción:Toru Hara
 - Guion:Isao Takahata,Akiuiki Nosaka
 - Basada en el libro de *La tumba de las luciérnagas* de Akiuiki Nosaka
--Productora: Studion Ghibli
-_ Año de estreno: 1988
+- Productora: Studion Ghibli
+- Año de estreno: 1988
 - Musica: Michio Mamiya
--Fotografia: Nobuo Koyama
+- Fotografia: Nobuo Koyama
 - Montaje:Takeshi Seyama
 - Pais de Origen: Japón
 - Género Anime: Drama, Historia, Belico, Anime.
