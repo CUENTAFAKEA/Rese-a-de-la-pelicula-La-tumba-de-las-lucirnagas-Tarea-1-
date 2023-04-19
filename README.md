@@ -1,6 +1,6 @@
 # La Tumba de las Luciérnagas
 
-_Reseña elavorada por Kimberline Reyes Macis_
+_Reseña elaborada por Kimberline Reyes Macis_
 
 ## Ficha Tecnica
 - Dirección:Isao Takahata
